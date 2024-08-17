@@ -16,4 +16,5 @@ I'm always excited to take on new challenges, whether it's a short-term project 
 
 ## Contact:
 Linkedin: [This link](https://www.linkedin.com/in/thongvhoang/) <br />
-My email: vhthongvn@gmail.com
+My email: vhthongvn@gmail.com <br />
+Scholar Google: [This link]([https://www.linkedin.com/in/thongvhoang/](https://scholar.google.com/citations?user=iIYRmHsAAAAJ&hl=en))

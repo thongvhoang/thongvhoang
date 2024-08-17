@@ -14,6 +14,6 @@ If you're looking for a professional who can bring technical excellence and busi
 ## 🔗 Let’s Work Together:
 I'm always excited to take on new challenges, whether it's a short-term project or a long-term collaboration. Feel free to reach out to me on [Upwork](https://www.upwork.com/), where you can find more details about my services and client feedback.
 
-
-Linkedin: [This link]([https://pages.github.com/](https://www.linkedin.com/in/thongvhoang/))
+## Contact:
+Linkedin: [This link](https://www.linkedin.com/in/thongvhoang/) <br />
 My email: vhthongvn@gmail.com
